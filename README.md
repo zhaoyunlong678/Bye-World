@@ -1,2 +1,2 @@
 # Bye-World
-Learning
+Hate all around me!
